@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1FgODBIlaKlEx0hBT5oWf2mZ9ScF9mzZG/view?usp=drivesdk](https://drive.google.com/file/d/1FgODBIlaKlEx0hBT5oWf2mZ9ScF9mzZG/view?usp=drivesdk)
 
-- ⚡ Fun fact **I'm a new discovery in development😄**
+- ⚡  **I'm a new discovery in development😄**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
